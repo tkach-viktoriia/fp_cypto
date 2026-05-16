@@ -59,4 +59,4 @@
 
 ## 👩‍💻 Автор
 
-Viktoriia Tkach · [LinkedIn](https://linkedin.com/in/viktoriia-tkach) · [GitHub](https://github.com/tkach-viktoriia)
+Viktoriia Tkach · [LinkedIn](https://www.linkedin.com/in/viktoriia-tkach-94b392254/) · [GitHub](https://github.com/tkach-viktoriia)
